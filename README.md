@@ -1,0 +1,1 @@
+Evidenca izdana opreme 
